@@ -1,0 +1,1 @@
+Ud no es administrador respete
